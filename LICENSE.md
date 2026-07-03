@@ -1,4 +1,4 @@
-#  
+#  Experience murderers vs sheriffs 2 like never before with automatic Script for murderers vs sheriffs 2, the #1 Script. Includes god mode and speed
 
 
 
